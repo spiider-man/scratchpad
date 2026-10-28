@@ -25,7 +25,7 @@
 
   
   
-${\textsf{\color{#9A5662}    Hihi, my name's Danny. I'm 17.. anybody under 15 iwec.}}$
+${\textsf{\color{#9A5662}    Hihi, my name's Danny. I'm a 17 yr filipino-american.}}$
 
 ${\textsf{\color{#7B4F5D}    I'm autistic and a host of a system. My behavior + personality}}$
 ${\textsf{\color{#7B4F5D}    differentiate depending on who is fronting. Please keep this in mind, ok?}}$
