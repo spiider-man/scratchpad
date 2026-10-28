@@ -25,13 +25,14 @@
 
   
   
-${\textsf{\color{#9A5662}    danny   16+}}$
- 
-${\textsf{\color{#7B4F5D}    did + autistic   host}}$
+${\textsf{\color{#9A5662}    Hihi, my name's Danny. I'm 17.. anybody under 15 iwec.}}$
 
-${\textsf{\color{#754E59}    transgay   taken}}$
+${\textsf{\color{#7B4F5D}    I'm autistic and a host of a system. My behavior + personality}}$
+${\textsf{\color{#7B4F5D}    differentiate depending on who is fronting. Please keep this in mind, ok?}}$
 
-${\textsf{\color{#784E5C}    iwec always  --  mentally unstable}}$
+${\textsf{\color{#754E59}    I'm transgay and happily taken by the love of my life.}}$
+
+${\textsf{\color{#784E5C}    I heavily advise you always iwec. I am mentally unstable.}}$
 
 [新book](https://love-you-todeath.atabook.org/)  [straw](https://spiidermann.straw.page)
 
